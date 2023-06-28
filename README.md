@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AmanSingh
+- 👀 I’m interested in technology,computers and coding
+- 🌱 I’m currently learning Java and DSA
+- 📫 How to reach me amansingh9039info@gmail.com
+- 😄 Student of CSJM University,Kanpur
+- 😎 Excited to learn new things and work on it
